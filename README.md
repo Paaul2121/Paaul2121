@@ -39,5 +39,5 @@ I recently discovered my true passion, programming, and since then I've been eag
 
 - Walking at night 🎉
 - Playing sports 🏋️‍♂️
-- Watching movies 📺
+- Learning new things 📺
 - Cooking 👨‍🍳
